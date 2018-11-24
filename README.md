@@ -1,1 +1,2 @@
 # goals
+juz bling out!!!
